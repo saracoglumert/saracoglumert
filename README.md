@@ -1,4 +1,4 @@
-Contact : mert@saracoglu.com.tr
+Contact : mertsaracoglu@outlook.com
 
 Middle East Technical University
 B.Sc. Mechanical Engineering
